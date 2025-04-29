@@ -1,2 +1,2 @@
 Contact info:
-christopher.gang@gmail.com
+Message me here on Github: @chrismonarch
